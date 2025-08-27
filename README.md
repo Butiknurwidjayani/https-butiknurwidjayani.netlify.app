@@ -1,3 +1,3 @@
 # https-butiknurwidjayani.netlify.app
 Fashion Elegant and syari
-https;WA ne/81229320926
+https;WA me/81229320926
